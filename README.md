@@ -1,1 +1,1 @@
-![](http://i1.piimg.com/588926/d1cb3dda0bdf8cd1.png)
+https://github.com/aok0000/aok0000.github.io/blob/main/%E9%98%BF%E5%B2%A9.jpg
